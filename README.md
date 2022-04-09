@@ -11,3 +11,6 @@ http://www.VE3WZW.net
 http://VE3WZW.blogspot.com
 
 
+many commnts about this location or site being the "best" site they ever visited.   Amazed 
+
+
